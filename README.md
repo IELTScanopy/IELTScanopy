@@ -34,7 +34,7 @@
 ## 📺 Latest Vidoes
 
 <!-- BLOG-POST-LIST:START -->
-- [Cambridge 10 Reading Test 1 Passage 2 Bangla Explanation || IELTScanopy](https://www.youtube.com/watch?v=05kQ_xx6bvQ)
+- [Comprehensive Bangla Explanation: Cambridge 10 Reading Test 1 Passage 2 | IELTScanopy](https://www.youtube.com/watch?v=05kQ_xx6bvQ)
 - [Cambridge 10 Reading Test 1 Passage 1 Bangla Explanation || IELTScanopy](https://www.youtube.com/watch?v=cmYmCPdHdRA)
-- [AU Pair Job Application IELTS Listening Part-1 || #IELTScanopy](https://www.youtube.com/watch?v=idmZ_bT0NoU)
+- [AU Pair Job Application IELTS Listening Part-1 | Boost Your Skills with #IELTScanopy](https://www.youtube.com/watch?v=idmZ_bT0NoU)
 <!-- BLOG-POST-LIST:END -->
